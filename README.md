@@ -24,9 +24,9 @@
  <div align="center">
    
   <a href="()">
-</a> ㅤ゛ ⸝⸝.ᐟ⋆ㅤ <a href="https://bloodyguns.atabook.org/">
+</a> ㅤ゛ ⸝⸝.ᐟ⋆ㅤ <a href="https://cqlloutmyname.atabook.org/">
   <img src="https://64.media.tumblr.com/dc748969cf3ab254393c7f98d1cd5fd7/12be755e87e05009-ac/s500x750/fd96ea4844027e5ae5829c5fe1b9bc704d000438.pnj" width="100" height="50" alt="atabook">
-</a> ㅤ゛ ⸝⸝.ᐟ⋆ㅤ <a href="https://pronouns.cc/@bloodyguns">
+</a> ㅤ゛ ⸝⸝.ᐟ⋆ㅤ <a href="https://pronouns.cc/@calloutmyname">
   <img src="https://64.media.tumblr.com/2b8cd8cce0d4cc868f11d674c3e7aa7f/12be755e87e05009-d4/s2048x3072/b6c48985a03b71e45022f71ba0c55ef9315fbd4b.pnj" width="100" height="50" alt="prnscc">
 </a> 
 
